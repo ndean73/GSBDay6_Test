@@ -1,1 +1,3 @@
 # GSBDay6_Test
+
+1. DEAN NALUMPA
